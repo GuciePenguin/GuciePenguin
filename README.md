@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on different challenges
 - 📫 How to reach me: By message in here
 - 😄 Pronouns: .She/her
-- ⚡ Fun fact: I love to play videogsmes in my free time
+- ⚡ Fun fact: I love to play videogames in my free time
 
 <!---
 GuciePenguin/GuciePenguin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
